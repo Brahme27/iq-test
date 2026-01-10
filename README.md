@@ -1,0 +1,1 @@
+# IQ test for childs between age 6-15
